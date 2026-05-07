@@ -1,5 +1,7 @@
+Título: La Epopeya de José
 Autor: Génesis
 Categoría: Historia
+Fecha: Mayo 2026
 
 # Prólogo
 Esta es la crónica de un hombre cuya vida personifica la resiliencia bajo la mano invisible de la Providencia. Desde las colinas de Canaán hasta los palacios de Menfis, la historia de José es un testimonio de cómo la envidia humana es incapaz de anular los propósitos divinos.
