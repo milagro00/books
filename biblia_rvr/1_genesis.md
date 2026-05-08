@@ -143,7 +143,7 @@ Luego dijo Dios: Haya expansión en medio de las aguas, y separe las aguas de la
 20 Y puso Adán nombre a toda bestia y ave de los cielos y a todo ganado del campo; mas para Adán no se halló ayuda idónea para él. 
 21 Entonces Jehová Dios hizo caer sueño profundo sobre Adán, y mientras este dormía, tomó una de sus costillas, y cerró la carne en su lugar. 
 22 Y de la costilla que Jehová Dios tomó del hombre, hizo una mujer, y la trajo al hombre. 
-23 Dijo entonces Adán: Esto es ahora hueso de mis huesos y carne de mi carne; esta será llamada Varona _1_, porque del varón fue tomada.
+23 Dijo entonces Adán: Esto es ahora hueso de mis huesos y carne de mi carne; esta será llamada Varona _1_, porque del varón _2_ fue tomada.
 
 ***_1_ Heb. IIshshah - _2_ Heb. Ish***
 
